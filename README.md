@@ -58,4 +58,4 @@ I'm always excited to collaborate, contribute, or explore new opportunities.
 
 💻 GitHub: https://github.com/surbhiverma99
 
-🐦 Twitter: [Coming Soon](https://x.com/SURBHIVERM82020)
+🐦 Twitter: https://x.com/SURBHIVERM82020
